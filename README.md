@@ -2,4 +2,4 @@
 - 👀 I'm interested in Data Analysis
 - 🌱 I'm currently working on various Analysis tools
 - 💞 I'm looking to collaborate on Analysis topics
-- 📫 How to reach me - https://www.linkedin.com/in/gayatri-guddannavar/ 
+- 📫 How to reach me - gayatriguddannavar@gmail.com
